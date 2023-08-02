@@ -10,4 +10,4 @@ Its 11pm on a school night as of writing this but that is ok, imma make a profil
 > ~~ Meanwhile ~~
 
 Check out my discord if you wanna reach me ~~for some reason~~:
-- Ventrix#2635
+- VentrixIMO
